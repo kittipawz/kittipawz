@@ -1,16 +1,14 @@
-## Hi there 👋
+![image](https://github.com/kittipawz/kittipawz/blob/7499a648daab8d465996d8ef9e873de089057f43/0f1fd2f8e3c0a1e2676ad7660443711c.gif)
 
-<!--
-**kittipawz/kittipawz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⠀𝜗℘  ‿︵
 
-Here are some ideas to get you started:
+ ‿◞  𓏴ㅤㅤㅤㅤ  ˙⠀𓂃 ◞(🪐) ﹒
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ㅤ⠀ 𓏴⠀⠀⠀⠀   ֦   courtlyn'𝓈⠀𝒹 lyn (🍡)
+
+ ㅤ⠀ 𓏴⠀⠀⠀⠀⠀   ︶ ͝  ྀི   🍥 15   𝜗ৎ
+
+ ⠀◟𝜗℘ 𓂃
+
+
+
