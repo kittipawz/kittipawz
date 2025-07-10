@@ -1,3 +1,1 @@
-![image](https://github.com/kittipawz/kittipawz/blob/c2231f05027d9f3db5c5e337cc10eea63828c996/b9d1c3a096136e231fa2a04614499512.jpg)
-
-
+![image](https://github.com/kittipawz/kittipawz/blob/5a47d97b1b61a2371868557e5ba74544525a4e82/2e5c6eb8d425ed62eb31a21b2b3527c0.jpg) 
