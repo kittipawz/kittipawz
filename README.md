@@ -1,4 +1,4 @@
-17 ⛧ Goth. C+H open to anyone
+18 ⛧ Goth. C+H open to anyone
 
 usually in BSD areas, one piece/mha or caves (it's a pretty place..)
 
